@@ -7,7 +7,12 @@ https://goo.gl/maps/CghSicAvrM6nnYJ8A
 ## 2024-2025:
 ![image](https://github.com/user-attachments/assets/0549cd9e-3952-4dee-b366-9384ba474a62)
 
+## 2023-2024:
+![image](https://github.com/user-attachments/assets/e97e4755-99b5-4de4-85ee-a6d548edd02f)
+
 ## 2022-2023:
+![image](https://github.com/user-attachments/assets/2da8eacc-379d-4c02-8f01-62619ba9a01e)
+
 ![image](https://github.com/user-attachments/assets/588eb589-24d2-4bce-8f9e-f93600a4b068)
 
 ## 2020-2021:
