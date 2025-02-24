@@ -1,6 +1,6 @@
 # De-Thi-Hoc-Sinh-Gioi-Toan-Lop-9-Ha-Noi
 * Đề Thi Học Sinh Giỏi Toán Lớp 9 ở thành phố Hà Nội
-* Tuyển tập Đề Thi Học Sinh Giỏi Toán Lớp 9 ở thành phố Hà Nội Triết sử dụng cho các lớp toán nâng cao, toán chuyên PTNK, toán không chuyên PTNK cho các bạn học sinh lớp 6, 7, 8 và lớp 9, tối 2-4-6, 3-5-7, thứ 7-CN hàng tuần.
+* Tuyển tập Đề Thi Học Sinh Giỏi Toán Lớp 9 ở thành phố Hà Nội Triết sử dụng cho các lớp toán nâng cao, toán chuyên online cho các bạn học sinh lớp 6, 7, 8 và lớp 9, tối 2-4-6, 3-5-7, thứ 7-CN hàng tuần.
 * Liên hệ học thử các lớp toán online và offline: 0962797946 (FaceTime, Zalo,...), [Facebook](https://www.facebook.com/trietptm), gần ngã ba Hồ Văn Huê - Nguyễn Kiệm, Phú Nhuận.
 https://goo.gl/maps/CghSicAvrM6nnYJ8A
 
