@@ -111,6 +111,12 @@ https://goo.gl/maps/CghSicAvrM6nnYJ8A
 ![image](https://github.com/user-attachments/assets/9076a631-0c26-4d59-97ee-a95a25610378)
 
 ## THAM KHẢO THÊM:
+* https://github.com/trietptm/De-Thi-Toan-Chuyen-Tuyen-Sinh-Lop-10-Chuyen-Toan-THPT-Hanoi
+* https://github.com/trietptm/De-Thi-Toan-Tuyen-Sinh-Lop-10-THPT-Hanoi
 * https://github.com/trietptm/De-Thi-Hoc-Sinh-Gioi-Toan-Lop-9-TP.HCM
+* https://github.com/trietptm/De-Thi-Toan-Tuyen-Sinh-Lop-10-Chuyen-SPHN
+* https://github.com/trietptm/De-Thi-Toan-Chuyen-Tuyen-Sinh-Lop-10-Chuyen-Toan-SPHN
+* https://github.com/trietptm/De-Thi-Toan-Tuyen-Sinh-Lop-10-Chuyen-KHTN-HN
+* https://github.com/trietptm/De-Thi-Toan-Chuyen-Tuyen-Sinh-Lop-10-Chuyen-Toan-KHTN-HN
 * 
 
